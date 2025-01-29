@@ -19,7 +19,7 @@
 </div>
 
 ###
-<p align="left">https://morgiosdrawpage.straw.page/</p>
+<p align="center">https://morgiosdrawpage.straw.page/</p>
 
 ###
 
