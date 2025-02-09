@@ -1,4 +1,4 @@
-# About-Me-<h2 align="center">Hello!! Im Morgio!!</h2>
+# READ-THIS-<h2 align="center">Hello!! Im Morgio!!</h2>
 
 ###
 
@@ -24,5 +24,12 @@
 ###
 
 <p align="center">draw on my strawpage!!!!!!!!!!!</p>
+
+###
+<p align="center">Profiles/Socials!</p>
+
+###
+
+<p align="center">Discord user:  morgiomorgio<br><br>Roblox:https://www.roblox.com/users/2608207254/profile<br><br>Everskies: https://everskies.com/user/N1k00_-15644681<br><br>Youtube: https://www.youtube.com/@N1k0_X0X0<br><br>Spotify: https://open.spotify.com/user/31gfrf6ipfzjw3ceirozxogee7gq</p>
 
 ###
