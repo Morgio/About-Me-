@@ -8,7 +8,7 @@
 
 ###
 
-<p align="center">Heyhey!! if u want to interreact her are my fandoms/interests : <br>Blocks Tales, Forsaken, Dream game, Cookie run (all games), Genshin, Honkai sky rail, Wuthering waves, Dandys world, skuull girls, project sekai, Reverse 1999, Daybreak 2, Gacha, Countryballs, Minecraft, papa louie games, Delicious in dungeon,  chainsaw man, flavor frenzy, regretevator, Object shows (mainly battle for dream island), flicker, pressure</p>
+<p align="center">Heyhey!! if u want to interreact her are my fandoms/interests : https://aboutmorgio.straw.page/</p>
 
 ###
 
